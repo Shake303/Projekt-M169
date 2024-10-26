@@ -16,5 +16,5 @@
 
 ***FAT Cursive***
 
-[Best boii Link!](twitch.tv/shake3003)
+[Best boii Link!](https://www.twitch.tv/shake3003)
 
